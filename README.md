@@ -23,7 +23,7 @@ We haven’t decided to buy the flights operated by Swiss Airlines to carry us f
 We are expecting that this route’s application can be submitted and approved. 
 
 
-Would you mind sharing with us what step is it now and keeping the updates? Is the route application submitted? If so, we’ll contact the Changi airport and provide more details for their consideration. I'd sincerely appreciate your kind helps. 
+Would you mind updating us what step is it now? Is the route application submitted? If so, we’ll contact the Changi airport and provide more details for their consideration. I'd sincerely appreciate your kind helps. 
 
 
 Thank you and wish you a great day!
